@@ -1,4 +1,4 @@
-## Hi there 👋
+This profile is currently set to private. Please check again later.
 
 <!--
 **aidansmyers/aidansmyers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
